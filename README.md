@@ -1,0 +1,1 @@
+# Veterano-sintonia-rp-Desofuscado-By-Fx-Zero-Atualizado-Copia-n-o-seus-Passa-fome-
